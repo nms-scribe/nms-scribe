@@ -1,4 +1,4 @@
-I am an amateur (for now) author, role-playing game designer, fantasy cartographer, software developer, husband and father. At least, those are what I think of myself as.
+I am an amateur (for now) software developer, author, role-playing game designer, fantasy cartographer, husband and father. At least, those are what I think of myself as.
 
 I live in rural eastern Wisconsin, USA, and am a member of my [local writer’s group](<https://fdlw.wordpress.com/>). 
 
